@@ -1,2 +1,0 @@
-# SimranjeetSingh
-personal website
